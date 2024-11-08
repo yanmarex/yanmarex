@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **React,Figma,Godot**
 
-- 📫 How to reach me ****
+- 📫 How to reach me **misteryanmarex@gmail.com**
 
 - ⚡ Fun fact **I like Tohou Games**
 
