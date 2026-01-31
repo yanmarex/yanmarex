@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **misteryanmarex@gmail.com**
 
-- ⚡ Fun fact **I like Tohou Games**
+- ⚡ Fun fact **I like Megaman Games**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
